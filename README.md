@@ -4,6 +4,7 @@
 Here’s a general approach on how you can build or use a dice roll generator for different purposes:
 
 [✅ CLICK HERE TO GET NOW FREE FOR IOS](https://zades.xyz/offer%20dice%20dream/)
+
 [✅ CLICK HERE TO GET NOW FREE FOR ANDROID](https://zades.xyz/offer%20dice%20dream/)
 
 1. **General Dice Roll Generator**
